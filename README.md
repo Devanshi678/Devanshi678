@@ -45,8 +45,8 @@ I am currently looking for full-time positions as an **Entry-Level Data Analyst*
 
 ## 📫 How to Reach Me
 
-* **LinkedIn:** [Add your LinkedIn profile link here]
-* **Email:** [Add your email address here]
+* **LinkedIn:** www.linkedin.com/in/devanshikumari-patel-24b810190 
+* **Email:** pateldevanshi678@gmail.com
 
 <br/>
 
